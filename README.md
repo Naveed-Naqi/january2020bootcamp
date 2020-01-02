@@ -15,6 +15,8 @@ Lead Instructor: Allan James S. Lapid
 
 Instructor: Billy Tan, Tony Fung
 
+The Greatest: Naveed Naqi
+
 Emails: ajLapid718@gmail.com, btan7645@gmail.com, tfung5@gmail.com
 
 Slack Workspace: https://hunterttpspring2020.slack.com
